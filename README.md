@@ -2,7 +2,7 @@
 - 👀 I’m interested in Formula 1, Poetry, Adventure
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me: Instagram: @sir_naet; LinkedIn: Brian Sanaet Memusi
 - 😄 Pronouns: He/Him/His
 - ⚡ Fun fact: 
 
