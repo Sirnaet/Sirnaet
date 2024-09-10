@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sanaet Memusi
-- 👀 I’m interested in Formula 1, Poetry, Adventure
+- 👀 I’m interested in Formula 1, Poetry, Adventure, Robotics 
 - 🌱 I’m currently learning C++
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: Instagram: @sir_naet; LinkedIn: Brian Sanaet Memusi
